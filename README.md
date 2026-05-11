@@ -68,7 +68,8 @@ Prefixes वा/बु/दि classify domains: systemic, material, and sovereig
 
 **Definition:** One born from collective act of overcoming fear and evil.
 
-**Shloka:**
+**Shloka:** "यैर्भयं तरितं लोके, पापं विदारितं तमः।
+तैः सतर्जाः समुत्पन्नाः, रक्षकास्तमसः परे ।।"
 > Those by whom fear is crossed in the world, evil and darkness are pierced—from them the Satarjas are born, protectors beyond darkness.
 
 **Expansion N Declension:**
